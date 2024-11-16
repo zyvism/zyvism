@@ -1,5 +1,5 @@
 ### hi ^_^ 
 
-![ac soyochii](https://github.com/user-attachments/assets/344a5a6b-7b9b-4f96-9804-9621a8a2a85a)
+![ac soyochii](cf0c4b400ad3e76919b2ec8fe717b38c.jpeg)
 
 [strawpage](https://seamsquire.straw.page) [atabook](https://zyvism.atabook.org/) [prns.cc](https://pronouns.cc/@seamkin)

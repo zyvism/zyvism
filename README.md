@@ -8,6 +8,17 @@ basic boundaries but please dont copy my skins
 
 ---
 
+#### things i like
+- jujutsu kaisen
+- mouthwashing
+- doodle world
+- godzilla
+- warrior cats
+- etc. (check my strawpage)
+if you cosplay/are into any of these then please int!!
+
+---
+
 **status list**
 - 🗨 = available/int
 - 🌙 = afk

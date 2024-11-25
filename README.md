@@ -25,6 +25,10 @@ if you cosplay/are into any of these then please int!!
 - 🌙 = afk
 - ⛔ = off-tab
 
+c + h always encouraged
+
+w2i = afk/off-tab
+
 ---
 
 #### int list

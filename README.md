@@ -50,3 +50,5 @@ w2i = afk/off-tab
 ---
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=252hl5un6vede7zfg68sn7jbd&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false)](https://github.com/kittinan/spotify-github-profile)
+
+![](c75dddd1138c7a0f27a2a3bcf1401a49.jpg)

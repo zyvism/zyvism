@@ -1,5 +1,7 @@
 ### hi ^_^ 
 
+![](85774462f153cf985c90c2c98f6f3817.jpg)
+
 so i made this for ponytown and like... yeah um skibidi rizz balls
 
 most of the time if im on i'll probably be with friends, if i'm sitting along feel free to cuddle or hide. i wont interact with you unless you talk to me first, but im a rlly nice person and i rlly like making friends ^_^

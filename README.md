@@ -4,6 +4,8 @@ so i made this for ponytown and like... yeah um skibidi rizz balls
 
 most of the time if im on i'll probably be with friends, if i'm sitting along feel free to cuddle or hide. i wont interact with you unless you talk to me first, but im a rlly nice person and i rlly like making friends ^_^
 
+most of the time i'm usually sitting in the jjk or mouthwashing area, but i wander when i'm bored. i'm usually sitting at the docks as well or if i'm with friends i just sit with them
+
 basic boundaries but please dont copy my skins
 
 ---

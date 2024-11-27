@@ -37,7 +37,7 @@ c + h always encouraged! w2i = afk/off-tab
 - satosugu / goge enjoyers
 - any fandom im in
 - GOJOS... heh... 🤤
-- jimcurl shippers (i love toxic yaoi)
+- fallen leaves cos (if any)
 - nice ppl in general
 #### dni list
 - gego fans

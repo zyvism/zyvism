@@ -45,10 +45,9 @@ c + h always encouraged! w2i = afk/off-tab
 
 ---
 #### int list
-- satosugu / goge enjoyers
+- SATOSUGU/GOGE ENJOYERS
+- fallenjay (fallen leaves x jayfeather) enjoyers!!
 - any fandom im in
-- GOJOS... heh... 🤤
-- fallen leaves cos (if any)
 - nice ppl in general
 
 ♡

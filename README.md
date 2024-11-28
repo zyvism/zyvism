@@ -12,6 +12,10 @@
 
 ---
 
+————————————————————————— ★ ——————————————————————————
+
+---
+
 #### things i like
 - jujutsu kaisen
 - mouthwashing
@@ -24,6 +28,10 @@ if you cosplay/are into any of these then please int!!
 
 ---
 
+————————————————————————— ★ ——————————————————————————
+
+---
+
 **status list**
 - 🗨 = available/int
 - 🌙 = afk
@@ -33,17 +41,27 @@ c + h always encouraged! w2i = afk/off-tab
 
 ---
 
+————————————————————————— ★ ——————————————————————————
+
+---
 #### int list
 - satosugu / goge enjoyers
 - any fandom im in
 - GOJOS... heh... 🤤
 - fallen leaves cos (if any)
 - nice ppl in general
+
+♡
+
 #### dni list
 - gego fans
 - sukugo, gojohime, yutamaki shippers
 - swansuke, anyasuke, jimanya shippers
 - FREAKS/j
+
+---
+
+————————————————————————— ★ ——————————————————————————
 
 ---
 

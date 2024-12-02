@@ -1,14 +1,16 @@
-### hi ^_^ 
-
 ![](85774462f153cf985c90c2c98f6f3817.jpg)
 
-  so i made this for ponytown and like... yeah um skibidi rizz balls
+  hello! i made this for ponytown
 
-  most of the time if im on i'll probably be with friends, if i'm sitting along feel free to cuddle or hide. i wont interact with you unless you talk to me first, but im a rlly nice person and i rlly like making friends ^_^
+  you can call me zilly. however, you can call me by the names of the skins/cosplays i use too.
 
-  most of the time i'm usually sitting in the jjk or mouthwashing area, but i wander when i'm bored. i'm usually sitting at the docks as well or if i'm with friends i just sit with them
+  i'm probably sitting with friends, feel free to cuddle or hide if i'm alone though. i usually won't interact with you unless you talk to me first, but i'm really nice i promise
 
-  basic boundaries but please dont copy my skins
+  i'm usually doing something else or off-tab when i have w2i in my name. my replies are really slow if i do. if i don't have w2i in my name that means you can interact freely
+
+  i sit in the jjk or mouthwashing area mostly, but i wander when i'm bored. i sit at the bakery or docks most of the time too
+
+  basic boundaries, but please don't copy my skins. taking inspo is fine though
 
 ---
 
@@ -28,26 +30,16 @@ if you cosplay/are into any of these then please int!!
 
 ---
 
-————————————————————————— ★ ——————————————————————————
-
----
-
 **status list**
 - 🗨 = available/int
 - 🌙 = afk
 - ⛔ = off-tab
 
-c + h always encouraged! w2i = afk/off-tab
-
----
-
-————————————————————————— ★ ——————————————————————————
-
 ---
 #### int list
 - SATOSUGU/GOGE ENJOYERS
-- fallenjay (fallen leaves x jayfeather) enjoyers!!
-- any fandom im in
+- fallenjay enjoyers!
+- any fandom i'm in
 - nice ppl in general
 
 ♡

@@ -6,7 +6,7 @@
 
   i'm probably sitting with friends, feel free to cuddle or hide if i'm alone though. i usually won't interact with you unless you talk to me first, but i'm really nice i promise
 
-  i'm usually doing something else or off-tab when i have w2i in my name. my replies are really slow if i do. if i don't have w2i in my name that means you can interact freely
+  i'm usually doing something else or off-tab when i have w2i in my name. my replies are really slow if i do. if i don't have w2i in my name that means you can interact freely!
 
   i sit in the jjk or mouthwashing area mostly, but i wander when i'm bored. i sit at the bakery or docks most of the time too
 
@@ -18,7 +18,7 @@
 
 ---
 
-#### things i like
+#### fandoms
 - jujutsu kaisen
 - mouthwashing
 - doodle world
@@ -37,18 +37,17 @@ if you cosplay/are into any of these then please int!!
 
 ---
 #### int list
-- SATOSUGU/GOGE ENJOYERS
-- fallenjay enjoyers!
+- SATOSUGU/FALLENJAY
 - any fandom i'm in
 - nice ppl in general
 
 ♡
 
 #### dni list
-- gego fans
-- sukugo, gojohime, yutamaki shippers
-- swansuke, anyasuke, jimanya shippers
-- FREAKS/j
+- gegos.. sorry
+- sukugo, gojohime, yutamaki
+- swansuke, anyasuke, jimanya
+- FREAKS
 
 ---
 

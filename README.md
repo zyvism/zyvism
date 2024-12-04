@@ -16,27 +16,32 @@
 
 ![](171481663078353414-42.gif)![](171481663078353414-42.gif)
 
-> **![](IMG_6677.gif) fandoms**
-- jujutsu kaisen
-- mouthwashing
-- doodle world
-- godzilla
-- warrior cats
-- etc. (check my strawpage)
+> **![](IMG_6677.gif) fandoms**<br>
 
+jujutsu kaisen<br>
+mouthwashing<br>
+doodle world<br>
+godzilla<br>
+warrior cats<br>
+etc. (check my strawpage)<br>
 ![](image4.gif) if you cosplay/are into any of these then please int!!
 
-> ![](tumblr_inline_mjpod7DnEN1qz4rgp540.gif) **status list**
-- 🗨 = available/int
-- 🌙 = afk
-- ⛔ = off-tab
+<br>
 
-> ![](IMG_6677.gif) **int**
+> ![](tumblr_inline_mjpod7DnEN1qz4rgp540.gif) **status list**
+
+🗨 = available/int<br>
+🌙 = afk<br>
+⛔ = off-tab<br>
+
+<br>
+
+> ![](perfect.gif) **int**
 - SATOSUGU/FALLENJAY
 - any fandom i'm in
 - nice ppl in general
 
-> ![](tumblr_inline_mjpod7DnEN1qz4rgp540.gif) **dni**
+> ![](notgood.gif) **dni**
 - gegos.. sorry
 - sukugo, gojohime, yutamaki
 - swansuke, anyasuke, jimanya

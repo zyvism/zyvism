@@ -2,15 +2,15 @@
 
 > intro! ![](wave.gif)
 
-  hello! i made this for ponytown
+  hi! i made this for pony town ^_^
 
-  you can call me zilly. however, you can call me by the names of the skins/cosplays i use too.
+  i'm zilly, but you can call me by my kin names or by the cosplay i'm using
 
-  i'm probably sitting with friends, feel free to cuddle or hide if i'm alone though. i usually won't interact with you unless you talk to me first, but i'm really nice i promise
+  you can find me in the jjk area! i wander when i'm bored though... sometimes i might be at the docks or at the bakery too. i'm rarely ever at the mouthwashing area and i sometimes use my mouthwashing cos in the jjk section instead, it's because i don't like the mouthwashing section :c 
 
-  i'm usually doing something else or off-tab when i have w2i in my name. my replies are really slow if i do. if i don't have w2i in my name that means you can interact freely!
+  most of the time i have w2i in my name, and it usually means i'm afk or off-tab. my replies are also really slow. but if i don't have w2i in my name, that means you can interact freely!
 
-  i sit in the jjk area mostly, but i wander when i'm bored. i sit at the bakery or docks most of the time too. even when i'm in my mouthwashing cos, i stay at the jjk section because i don't like the mouthwashing section :c 
+  c + h is always encouraged. i sit with my friends most of the time, but don't let that stop you from sitting with us! i usually won't interact with you unless you approach me first, but i'm really nice i promise heehee
 
   basic boundaries, but please don't copy my skins. taking inspo is fine though
 

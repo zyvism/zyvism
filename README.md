@@ -1,4 +1,5 @@
-![](85774462f153cf985c90c2c98f6f3817.jpg)
+
+<p align="center"> <img src="85774462f153cf985c90c2c98f6f3817.jpg">
 
 > intro! ![](wave.gif)
 
@@ -34,7 +35,7 @@ etc. (check my strawpage)<br>
 🌙 = afk<br>
 ⛔ = off-tab<br>
 
-<br>
+<p align="center"> <img src="tumblr_05915f6053293fd0b1182b023b41078e_d20a196d_250.gif">
 
 > ![](perfect.gif) **int**
 - SATOSUGU/FALLENJAY
@@ -49,6 +50,4 @@ etc. (check my strawpage)<br>
 
 ![](171481663078353414-42.gif)![](171481663078353414-42.gif)
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=252hl5un6vede7zfg68sn7jbd&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false)](https://github.com/kittinan/spotify-github-profile)
-
-![](c75dddd1138c7a0f27a2a3bcf1401a49.jpg)
+<p align="center"> <img src="c75dddd1138c7a0f27a2a3bcf1401a49.jpg">

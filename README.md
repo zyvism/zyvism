@@ -1,5 +1,7 @@
 ![](85774462f153cf985c90c2c98f6f3817.jpg)
 
+> intro! ![](wave.gif)
+
   hello! i made this for ponytown
 
   you can call me zilly. however, you can call me by the names of the skins/cosplays i use too.

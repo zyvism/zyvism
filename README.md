@@ -12,13 +12,9 @@
 
   basic boundaries, but please don't copy my skins. taking inspo is fine though
 
----
+![](171481663078353414-42.gif)![](171481663078353414-42.gif)
 
-————————————————————————— ★ ——————————————————————————
-
----
-
-#### fandoms
+> **![](IMG_6677.gif) fandoms**
 - jujutsu kaisen
 - mouthwashing
 - doodle world
@@ -26,34 +22,25 @@
 - warrior cats
 - etc. (check my strawpage)
 
-if you cosplay/are into any of these then please int!!
+![](image4.gif) if you cosplay/are into any of these then please int!!
 
----
-
-**status list**
+> ![](tumblr_inline_mjpod7DnEN1qz4rgp540.gif) **status list**
 - 🗨 = available/int
 - 🌙 = afk
 - ⛔ = off-tab
 
----
-#### int list
+> ![](IMG_6677.gif) **int**
 - SATOSUGU/FALLENJAY
 - any fandom i'm in
 - nice ppl in general
 
-♡
-
-#### dni list
+> ![](tumblr_inline_mjpod7DnEN1qz4rgp540.gif) **dni**
 - gegos.. sorry
 - sukugo, gojohime, yutamaki
 - swansuke, anyasuke, jimanya
 - FREAKS
 
----
-
-————————————————————————— ★ ——————————————————————————
-
----
+![](171481663078353414-42.gif)![](171481663078353414-42.gif)
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=252hl5un6vede7zfg68sn7jbd&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false)](https://github.com/kittinan/spotify-github-profile)
 

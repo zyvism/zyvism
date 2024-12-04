@@ -51,3 +51,5 @@ etc. (check my strawpage)<br>
 ![](171481663078353414-42.gif)![](171481663078353414-42.gif)
 
 <p align="center"> <img src="c75dddd1138c7a0f27a2a3bcf1401a49.jpg">
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=252hl5un6vede7zfg68sn7jbd&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false)](https://github.com/kittinan/spotify-github-profile)

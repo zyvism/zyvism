@@ -44,9 +44,10 @@ etc. (check my strawpage)<br>
 
 > ![](notgood.gif) **dni**
 - gegos.. sorry
+- proshitters like erm ew
 - sukugo, gojohime, yutamaki
 - swansuke, anyasuke, jimanya
-- FREAKS
+- monkeys
 
 ![](171481663078353414-42.gif)![](171481663078353414-42.gif)
 

@@ -9,8 +9,6 @@
 
   you can find me in the jjk area! i wander when i'm bored though... sometimes i might be at the docks or at the bakery too. i'm rarely ever at the mouthwashing area and i sometimes use my mouthwashing cos in the jjk section instead, it's because i don't like the mouthwashing section :c 
 
-  most of the time i have w2i in my name, and it usually means i'm afk or off-tab. my replies are also really slow. but if i don't have w2i in my name, that means you can interact freely!
-
   c + h is always encouraged. i sit with my friends most of the time, but don't let that stop you from sitting with us! i usually won't interact with you unless you approach me first, but i'm really nice i promise heehee
 
   basic boundaries, but please don't copy my skins. taking inspo is fine though
@@ -34,6 +32,7 @@ etc. (check my strawpage)<br>
 🗨 = available/int<br>
 🌙 = afk<br>
 ⛔ = off-tab<br>
+![](image4.gif) w2i if i'm afk or off-tab :P
 
 <p align="center"> <img src="tumblr_05915f6053293fd0b1182b023b41078e_d20a196d_250.gif">
 

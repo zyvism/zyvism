@@ -5,7 +5,7 @@
 
   hi! i made this for pony town ^_^
 
-  i'm zilly, but you can call me by my kin names or by the cosplay i'm using
+  i go by zilly or suguru or daisuke HEH!!!!!
 
   you can find me in the jjk area! i wander when i'm bored though... sometimes i might be at the docks or at the bakery too. i'm rarely ever at the mouthwashing area and i sometimes use my mouthwashing cos in the jjk section instead, it's because i don't like the mouthwashing section :c 
 

@@ -1,8 +1,9 @@
 <p align="center"><img src=https://github.com/zyvism/weepwop/blob/main/gogemybeloved.gif>
   
 <p align="center"><b><a href="https://seamsquire.straw.page">straw</a> ‎ ‎‎ ‎‎ ‎‎ <a href="https://rentry.co/gonatsuu">pt info</a> ‎ ‎‎ ‎‎ ‎‎ <a href="https://getou.atabook.org">新book</a></b>
-<p align="center">goge and platonic sukugo enthusiast
-<p align="center"><u>c+h friendly always!</u> pls sit with me
+
+<p align="center">c+h friendly always! pls sit with me
+goge and platonic sukugo fans int pls
 
 <div align="center"> 
   

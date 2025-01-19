@@ -2,7 +2,7 @@
   
 <p align="center"><b><a href="https://seamsquire.straw.page">straw</a> ‎ ‎‎ ‎‎ ‎‎ <a href="https://rentry.co/gonatsuu">pt info</a> ‎ ‎‎ ‎‎ ‎‎ <a href="https://getou.atabook.org">新book</a></b>
 
-<p align="center">c+h friendly always! pls sit with me
+<p align="center">c+h friendly always! pls sit with me<br>
 goge and platonic sukugo fans int pls
 
 <div align="center"> 

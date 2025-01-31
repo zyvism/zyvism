@@ -3,8 +3,7 @@
 <p align="center"><b><a href="https://seamsquire.straw.page">straw</a> ‎ ‎‎ ‎‎ ‎‎ <a href="https://rentry.co/gonatsuu">rntry</a> ‎ ‎‎ ‎‎ ‎‎ <a href="https://getou.atabook.org">新book</a> ‎ ‎‎ ‎‎ ‎‎ <a href="https://pronouns.cc/@seamkin">cc</a></b>
 
 <p align="center">c+h friendly always! pls sit with me<br>
-read links before u interact plz! + sign my ata and straw maybe...<br>
-kinda multifandom i think... heh
+read links before u interact plz!<br>
   
 <div align="center">
 

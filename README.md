@@ -1,9 +1,7 @@
+✮　　　　　　　　　　　　　<i>my brother just another me.</i>
 <div align="center">
+  
+![41chVL8QnlL _AC_UF894_1000_QL80_-removebg-preview (1)](https://github.com/user-attachments/assets/a11983e0-e165-42d1-bc22-f8c98692cf0d)
 
-
-<p align="center"><b>S<a href="https://seamsquire.straw.page">TRAW</a> ‎ ‎‎ ‎‎ ‎‎ R<a href="https://rentry.co/gonatsuu">ENTRY</a> ‎ ‎‎ ‎‎ ‎‎ 新<a href="https://getou.atabook.org">BOOK</a> ‎ ‎‎ ‎‎
-
-  ![9683f3ab31f0fb42f56f745b56d0b81f](https://github.com/user-attachments/assets/044746ec-a84e-4dc7-b8a2-ce0042a4cbb5)
-
-https://github.com/user-attachments/assets/f7b9d3be-155f-4e42-8fe5-f983421ca394
+<p align="right"><a href="https://seamsquire.straw.page">straw</a> ‎ ‎‎ ‎‎ ‎‎ <a href="https://rentry.co/gonatsuu">rentry</a> ‎ ‎‎ ‎‎ ‎‎ <a href="https://getou.atabook.org">新book</a>　　　　　　　　　　　　　　𝜗ৎ
 

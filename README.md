@@ -2,7 +2,7 @@
 
 ![](https://komarev.com/ghpvc/?username=zyvism&style=plastic&color=grey&label=_𝜗ৎ)
   
-<img src="https://files.catbox.moe/vpdgjx.png" width="500" height="175">
+<img src="https://files.catbox.moe/25ps52.png" width="450" height="115">
 <br>
 
 platonic sukugo 4 ever<br>

@@ -1,5 +1,4 @@
 
-https://github.com/user-attachments/assets/33f06c40-42e8-4ab3-a2fb-9bcc1570a408
 <div align = "center">
 
 ![](https://komarev.com/ghpvc/?username=zyvism&color=d1daed&style=flat-square&label=victims)

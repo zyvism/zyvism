@@ -1,6 +1,4 @@
-<div align = center>
-  
 ![](https://komarev.com/ghpvc/?username=zyvism&color=7a7a7a&style=flat-square&label=backstabs+landed)
-  
-<img src="https://github.com/user-attachments/assets/f4671242-401d-4dc9-95c8-cff36c7b145c" width="356" height="204"><br> 
-<img src="https://github.com/user-attachments/assets/252164d8-1497-4ac7-964f-d69e82ebd2aa" width="356" height="356">
+<br>zilly/time/sugu they/he 16 im FUCKING INSANE
+<br>ia since ponytown removed my ability to afk 😂✌️ #Oops
+<br>![by @ thisdastampdoesnotexist](https://64.media.tumblr.com/5e61216c8a25f72ea62a601d458687b8/e9b3d8f54b40b5ff-a7/s100x200/7a5e8d6d0ed3a6678c985297e0666f0357744540.pnj)![by @ irldenji](https://64.media.tumblr.com/f7702d1329d398d9129a7f1e115e7a34/521dfb70c93af8b1-db/s100x200/b61b6ceac27c072081a928bd00a7597bd9e09f37.gifv)![by @ dottolonelover4life](https://64.media.tumblr.com/1e6128b1c8b55cfbafdd85ba4a9bbe33/7a3dc2e46165c073-6d/s100x200/96db8067b9c15692c31e8f8d89ba778fee9431b0.gifv)![by @ virtualspawn](https://64.media.tumblr.com/7b216433a5740cfea9267178f2aaacac/4d605949c89f8180-5e/s250x400/9e8ae3e1ab67ad397d0177249440a82ebbc2ee7c.pnj)![by @slightly-soggy-toast](https://64.media.tumblr.com/f7fd0eab04877105a63f8c37a3779fd8/320a12153702ad86-7d/s100x200/43a2de8db660cd9518d683cd942bd61bac7aa80e.pnj)

@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=zyvism&color=7a7a7a&style=flat-square&label=backstabs+landed)
+![](https://komarev.com/ghpvc/?username=zyvism&color=7a7a7a&style=flat-square&label=rituals+placed)
 <br><b>zilly</b> they/he 16 im FUCKING INSANE and BRAINROTTED
 <br>two time and suguru fictkin 😳😳 azure & satoru kins hmu 👅
 <br>semi-ia since ponytown removed my ability to afk 😂✌️ #Oops

@@ -3,6 +3,8 @@
 c/h freely always! w2i is preferred, i might miss your message<br>
 ships iwc unless we're close, please ... (◞ ⸝⸝ ◟ )
 
+the loveshot of ponytown! ([i](https://github.com/pt-hall-of-media)) ([i](https://github.com/pt-contributers)) 
+
 <a href="https://niightshaded.straw.page/">straw</a>　<a href="https://spwn.atabook.org">ata</a>　<a href="https://rentry.co/platonicskgo">rentry</a>
 
 ![](https://files.catbox.moe/r6qrjg.gif)<br>

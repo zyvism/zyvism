@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=zyvism&color=7a7a7a&style=flat-square&label=　+🪽+　)<br>
+![](https://komarev.com/ghpvc/?username=zyvism&color=613e8a&style=flat-square&label=　+🩷+　)<br>
 
 c/h freely always! w2i is preferred, i might miss your message<br>
 ships iwc unless we're close, please ... (◞ ⸝⸝ ◟ )

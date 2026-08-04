@@ -3,7 +3,7 @@
 c/h freely always! w2i is preferred, i might miss your message<br>
 ships iwc unless we're close, please ... (◞ ⸝⸝ ◟ )
 
-the loveshot & twotime of ponytown! [¹](https://github.com/pt-hall-of-media)[²](https://github.com/pt-contributers)[³](https://github.com/pt-nominations)[⁴](https://github.com/ponychievements)
+the loveshot & twotime of ponytown!
 
 <a href="https://niightshaded.straw.page/">straw</a>　<a href="https://spwn.atabook.org">ata</a>　<a href="https://rentry.co/platonicskgo">rentry</a>
 

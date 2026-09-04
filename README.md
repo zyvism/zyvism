@@ -4,7 +4,7 @@ wip graphic!!!!
   ![](https://komarev.com/ghpvc/?username=zyvism&color=000000&style=flat-square&label=　stun+count　)<br>
 <img width="350" align="center" src="https://github.com/user-attachments/assets/3a2d7c73-af38-4649-807d-ace79aadbf51" /><br>
 the loveshot and two time of ponytown~ :-)<br>
-<a href="https://niightshaded.straw.page/">straw</a>　<a href="https://spwn.atabook.org">ata</a>　<a href="https://rentry.co/platonicskgo">rentry</a>
+<a href="https://niightshaded.straw.page/">straw</a>　<a href="https://spwn.atabook.org">ata</a>　<a href="https://rentry.co/Iovepad">rentry</a>
 
 <details>
 <summary>dump!</summary>

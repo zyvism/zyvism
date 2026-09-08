@@ -1,9 +1,9 @@
 <div align = center> 
-
-wip graphic!!!!  
+  
   ![](https://komarev.com/ghpvc/?username=zyvism&color=000000&style=flat-square&label=　stun+count　)<br>
+  the loveshot and two time of ponytown~ :-) (wip graphic!)<br>
 <img width="350" align="center" src="https://github.com/user-attachments/assets/3a2d7c73-af38-4649-807d-ace79aadbf51" /><br>
-the loveshot and two time of ponytown~ :-)<br>
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=252hl5un6vede7zfg68sn7jbd&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=4f3965&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)<br>
 <a href="https://niightshaded.straw.page/">straw</a>　<a href="https://spwn.atabook.org">ata</a>　<a href="https://rentry.co/Iovepad">rentry</a>
 <div align = left> 
 <details>

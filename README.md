@@ -15,5 +15,5 @@
 <details>
 <summary>thank you ^o^</summary>
   
-[@pt-hall-of-media](https://github.com/pt-hall-of-media) [@pt-contributers](https://github.com/pt-contributers) [@pt-nominations](https://github.com/pt-nominations) [@ponychievements](https://github.com/ponychievements) [@pt-loveforfictional](https://github.com/pt-loveforfictional) [@title-town](https://github.com/title-town) [@FOLKTOWN](https://github.com/FOLKTOWN) [@cosplaytown](https://github.com/cosplaytown) [@ship-town](https://github.com/ship-town)
+[@pt-hall-of-media](https://github.com/pt-hall-of-media) [@pt-contributers](https://github.com/pt-contributers) [@pt-nominations](https://github.com/pt-nominations) [@ponychievements](https://github.com/ponychievements) [@pt-loveforfictional](https://github.com/pt-loveforfictional) [@title-town](https://github.com/title-town) [@FOLKTOWN](https://github.com/FOLKTOWN) [@cosplaytown](https://github.com/cosplaytown) [@ship-town](https://github.com/ship-town) [@pt-heavyfictkin](https://github.com/pt-heavyfictkin)
 </details>
